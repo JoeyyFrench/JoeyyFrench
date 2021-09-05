@@ -1,0 +1,6 @@
+- 👋 Salut, Je suis @JoeyyFrench,
+- 💻 Je suis Développeur GLua et monteur PC.
+- 📫 Vous pouvez me contacter ici :
+- 📱 Discord : JoeyyFrench#2006
+- 📧 Mail : nexiogamingytb@gmail.com
+- 🔫 Steam : JoeyyFrench
